@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Serkan
+- 👀 I’m interested in gaming and plugins.
+- 📫 How to reach me Instagram endro_lorde
